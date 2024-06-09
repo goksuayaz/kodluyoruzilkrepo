@@ -1,4 +1,4 @@
 
 
 
-![sfds](https://github.com/goksuayaz/kodluyoruzilkrepo/assets/159562162/d6bbfe36-31cf-4480-a687-3d4e88194fd1)
+![sfds](https://github.com/goksuayaz/kodluyoruzilkrepo-main/assets/159562162/ffdde6c3-b4c4-49c1-b240-4472c00fac22)
